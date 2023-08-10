@@ -1,0 +1,1 @@
+# joel_greenblatt_magic_formula
